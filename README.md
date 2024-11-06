@@ -1,4 +1,6 @@
-# Scrapyard-Sandy-Shores-ymap-
+![_bg4](https://github.com/user-attachments/assets/5fd1a9f4-6417-4c67-ba38-559e6836305e)
+
+# #Scrapyard-Sandy-Shores-ymap-
 Scrapyard Sandy Shores [ymap]
 
 # #Vorschau
